@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Yota Ozawa (小澤 瑶太)
+# 👋 Hi, I'm Oz
 
 
 
